@@ -1,1 +1,0 @@
-# devarshi-vara-first-repository
